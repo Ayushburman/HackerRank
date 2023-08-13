@@ -1,1 +1,1 @@
-i Wanted to become a actor
+i Wanted to become an actor
